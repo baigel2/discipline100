@@ -57,6 +57,12 @@ These must be done without exception 7 days a week:
 
 The 100 days will start Saturday the 3rd of May 2025 and if all goes well will end on Monday 11th August 2025.
 
+
+* If I break any of the rules even once, the 100 days restart.
+* If I miss any of the daily non negotiables (DNN's) even once without good reason, the 100 days restart.
+* Each month on payday I must set my budget. If payday coincides with a gym day then that days gym session will be moved to another day.
+* Once a week I will plan what to meal prep for the following week. (Only dinner needs to be prepped as breakfast and lunch are easy enough to make each day.)
+
 **Paydays between now and then:**
 
 * Monday 5.5.25
@@ -64,10 +70,7 @@ The 100 days will start Saturday the 3rd of May 2025 and if all goes well will e
 * Friday 4.7.25
 * Tuesday 5.8.25
 
-* If I break any of the rules even once, the 100 days restart.
-* If I miss any of the daily non negotiables (DNN's) even once without good reason, the 100 days restart.
-* Each month on payday I must set my budget. If payday coincides with a gym day then that days gym session will be moved to another day.
-* Once a week I will plan what to meal prep for the following week. (Only dinner needs to be prepped as breakfast and lunch are easy enough to make each day.)
+
 
 ### Meals:
 
