@@ -1,4 +1,6 @@
-# Enough is enough. I'm at the bottom of my overdraft - again!
+# Discipline 100.
+
+**Enough is enough. I'm at the bottom of my overdraft - again!**
 
 My overdraft limit: £750 below £0.
 
@@ -25,6 +27,8 @@ To unlock these I will need to have achieved all of the following:
 
 * Have an above £0 bank balance for 3 consecutive paydays.
 * The bank balance before I get paid each month needs to be at least £1 higher than the previous payday.
+* Update my balance each month on balance.md
+
 
 ## Exceptions:
 
@@ -34,6 +38,53 @@ When it comes to food, when I'm with my Grandparents or at a family gathering an
 
 However, snacking will still not be allowed.
 
+
+## Daily Non Negotiables:
+
+These must be done without exception 7 days a week:
+
+* 100 Burpees (In addition to any gym workouts).
+* 100% of Salah. (I've been getting lazy with prayers and sometimes missing them. Salah is for the sould what air is for the body.)
+* 3 gym sessions a week.
+* 3 healthy meals a day.
+* Fasting 2 days a week.
+* Cold shower every morning.
+* One journal entry per day on this website added to journal/date.html
+
+
+
+## Implimentation:
+
+The 100 days will start Saturday the 3rd of May 2025 and if all goes well will end on Monday 11th August 2025.
+
+**Paydays between now and then:**
+
+* Monday 5.5.25
+* Thursday 5.6.25
+* Friday 4.7.25
+* Tuesday 5.8.25
+
+* If I break any of the rules even once, the 100 days restart.
+* If I miss any of the daily non negotiables (DNN's) even once without good reason, the 100 days restart.
+* Each month on payday I must set my budget. If payday coincides with a gym day then that days gym session will be moved to another day.
+* Once a week I will plan what to meal prep for the following week. (Only dinner needs to be prepped as breakfast and lunch are easy enough to make each day.)
+
+### Meals:
+
+* Breakfast: Porriage with dried fruit & nuts.
+
+* Lunch: Protien shake with nuts and/or one piece of fruit.
+
+* Dinner: Meat from butchery (no processed rubbish!) veg and optional rice or pasta.
+
+Each week I can decide what meat I want to use and obviously I can decide what piece of fruit to eat with my lunch.
+
+
+# Links:
+
+* [Monthly bank balance.](balance.html)
+
+* [Daily Journal Entries.](journal/index.html)
 
 
 
