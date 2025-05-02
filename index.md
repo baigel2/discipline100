@@ -26,7 +26,7 @@ Let's keep them simple:
 To unlock these I will need to have achieved all of the following:
 
 * Have an above £0 bank balance for 3 consecutive paydays.
-* The bank balance before I get paid each month needs to be at least £1 higher than the previous payday.
+* The bank balance before I get paid each month needs to be at least £1 higher than it was just before the last time I got paid.
 * Update my balance each month on balance.md
 
 
