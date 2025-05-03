@@ -8,3 +8,6 @@ I will include my wins for the day and how I feel about the challenge as well as
 
 [Day 0: Friday 2.5.25](2.5.25.html)
 
+[Day 0, 2nd Entry:](2.5.25-2.md)
+
+[New Start Day:]

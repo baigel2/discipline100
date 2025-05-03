@@ -9,9 +9,9 @@ There is one large purchase I will be authorising which is a trip to America as 
 
 ## May 2025:
 
-* Balance before pay:
-* Balance after pay:
-* Balance after bills:
+* Balance before pay:   -£574.83
+* Balance after pay:    £1090.54
+* Balance after bills:  £84.02
 
 ## June 2025:
 

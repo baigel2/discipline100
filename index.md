@@ -1,91 +1,47 @@
 **Mirza Adnan Baig - Discipline 100 - 2025 Edition.**
 
-# The rules. 
 
-Let's keep them simple:
+100 Days of discipline from Monday 5th May to Wednesday 13th August.
 
-* No snacking.
+
+
+## Phase 1: Clean out & stay above £0 by next payday.
+
+Unlike the last D100 I did at the end of 2023 I will run this challenge through several phases. For the first phase the following apply until payday Thursday 5th June.
+
+* Any food you have already can be eaten and can only be replaced once it is finished. I.e: when you run out of eggs you can buy more eggs, when you run out of milk you can buy more milk.
+* If you run out of a junk food item you cannot replace it.
+* Only make survival purchases this month and pause or cancel all social media/entertainment subscriptions. See about removing youtube from your phone.
+* Keep an eye on your bank balance every day.
 * No takeaways.
-* No junk food of any kind.
-* No spending money on anything I don't genuinely need.
+* No purchasing any tech unless something breaks.
+* No london trips.
 
-To unlock these I will need to have achieved all of the following:
-
-* Have an above £0 bank balance for 3 consecutive paydays.
-* The bank balance before I get paid each month needs to be at least £1 higher than it was just before the last time I got paid.
-* Update my balance each month on balance.md
+* If you have the opportunity to buy a ticket for America either single or return then go for it.
 
 
+Organise phase 2 when you're approaching the next payday.
 
 
-# The Rest.
+# Phase 1, Non Negotiables:
 
-
-**Enough is enough. I'm at the bottom of my overdraft - again!**
-
-My overdraft limit: £750 below £0.
-
-My Current balance as of 02.05.2025: -£559.76.
-
-This is 100% unacceptable. I personally know people in their 20's who have thousands of pounds in their savings accounts, more even.
-
-I'm 34 years old and when it comes to finances and food I have the emotional control and discipline of a 2 year old. So, I'm doing another dicipline challenge.
-
-100 Days of discipline.
-
-The last time I did this I was trying to see what I was capable of and where my limits lied. I took myself to near breaking point. It was a great experience to know what I am and am not capable of.
-
-However, as soon as the challenge had finished I let myself go again and now I am on the other extreme where I once again feel I have no control over my spending.
-
-This time however this challenge will not end at day 100. Once I complete the 100 days I will have 2 days of rest and then begin another 100 day challenge with slightly more relaxed rules.
-
-Phase 1 (this first 100 days) is about regaining discipline. Every phase after that will be about sustaing discipline in a balanced way.
-
-
-## Exceptions:
-
-* Grandparents/family:
-
-When it comes to food, when I'm with my Grandparents or at a family gathering any food is allowed. These will effectively become my cheat days.
-
-
-## Non Negotiables:
-
-* 100 Burpees (In addition to any gym workouts).
+* 100 bodyweight squats a day (In addition to any gym workouts).
 * 100% of Salah. (I've been getting lazy with prayers and sometimes missing them. Salah is for the sould what air is for the body.)
 * 3 gym sessions a week.
-* 3 healthy meals a day.
+* 3 meals a day.
 * Fasting 2 days a week.
-* Cold shower every morning.
+* One Cold shower a day.
 * One journal entry per day on this website added to journal/date.html
 
-## Implimentation:
+# Upcoming Paydays:
 
-The 100 days will start Saturday the 3rd of May 2025 and if all goes well will end on Monday 11th August 2025.
-
-* If I break any of the rules even once, the 100 days restart.
-* If I miss any of the daily non negotiables (DNN's) even once without good reason, the 100 days restart.
-* Each month on payday I must set my budget. If payday coincides with a gym day then that days gym session will be moved to another day.
-* Once a week I will plan what to meal prep for the following week. (Only dinner needs to be prepped as breakfast and lunch are easy enough to make each day.)
-
-**Paydays between now and then:**
+**Paydays that fall within the 100 days:**
 
 * Monday 5.5.25
 * Thursday 5.6.25
 * Friday 4.7.25
 * Tuesday 5.8.25
 
-
-
-### Meals:
-
-* Breakfast: Porriage with dried fruit & nuts.
-
-* Lunch: Protien shake with nuts and/or one piece of fruit.
-
-* Dinner: Meat from butchery (no processed rubbish!) veg and optional rice or pasta.
-
-Each week I can decide what meat I want to use and obviously I can decide what piece of fruit to eat with my lunch.
 
 
 # Links:
